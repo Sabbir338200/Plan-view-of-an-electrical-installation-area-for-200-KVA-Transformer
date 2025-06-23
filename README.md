@@ -1,0 +1,1 @@
+# Plan-view-of-an-electrical-installation-area-for-200-KVA-Transformer
